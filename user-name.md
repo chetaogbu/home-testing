@@ -1,1 +1,1 @@
-this is my first usernmae
+this is my first username
